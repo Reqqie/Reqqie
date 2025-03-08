@@ -1,6 +1,10 @@
-## Hi there 👋
-
+## Haii :) I'm Reqqie.
+I'm a femboy who loves video games and coding
+This will mostly be for discord stuff, not games. Maybe some robotics too
+I use he/him pronouns and I love making friends ^^
+My discord is 'richkits' if you wanna add me
 <!--
+
 **Reqqie/Reqqie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
